@@ -1,0 +1,5 @@
+- 👋 Hi, I’m malak
+- 👀 I’m interested in chating, playing games 
+- 🌱 I’m currently learning in nothing
+- 😄 Pronouns: She+her
+- ⚡ Fun fact: Playing, clean my room, go outside taking fresh air
